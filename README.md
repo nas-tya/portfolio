@@ -42,11 +42,11 @@
 
 [Английский язык](https://drive.google.com/drive/folders/1frUXx7sK8JadccOx6EiWMc2zWphlG5h_?usp=share_link)
 
-[Веб-технологии](https://drive.google.com/drive/folders/1frUXx7sK8JadccOx6EiWMc2zWphlG5h_?usp=share_link)
+[Веб-технологии](https://drive.google.com/drive/folders/1_-umdUkSRb0Dk-vMUhrhwqS1gQYlb2de?usp=share_link)
 
 [ВычМат](https://drive.google.com/drive/folders/1UFK_bRssWWmQBGrGPW6_wFG-Y0gd66Jr?usp=share_link)
 
-[ВычТех](https://drive.google.com/drive/folders/1UFK_bRssWWmQBGrGPW6_wFG-Y0gd66Jr?usp=share_link)
+[ВычТех](https://drive.google.com/drive/folders/1i_av0-PCbcwdSBRS6jcyQ6xY-RBAOP9R?usp=share_link)
 
 [Интегралы и диф. уравнения](https://drive.google.com/drive/folders/14Vx8HBDlUapiBV_Hm8-BHVSzhcg-2VYJ?usp=share_link)
 
